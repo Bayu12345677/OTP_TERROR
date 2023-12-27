@@ -1,1 +1,1 @@
-sc="https://sfl.gl/MzBsedl"
+sc="https://sfl.gl/32crdyL"
